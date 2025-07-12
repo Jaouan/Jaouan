@@ -3,7 +3,6 @@
 
 - 📄 Know about my experiences [https://jaouan.dev](https://jaouan.dev)
 
-- ⚡ Fun fact: **During my first lesson as a teacher, 2 students fought. So I keep teaching.** 👨‍🏫
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
